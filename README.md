@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @T1erin
+- 👋 Hi, I’m @Omari
 - 👀 I’m interested in watching anime
 - 🌱 I’m currently learning. NO
 - 💞️ I’m looking to collaborate
